@@ -1,2 +1,0 @@
-# Dashboard-projexc
-Pink Power
